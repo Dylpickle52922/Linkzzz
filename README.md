@@ -1,38 +1,4 @@
 # Linkzzz
-Linkz 
-http://listings.showmyhomes.com/
-http://info.sundby.com/
-http://learn.gurdit.com/
-http://listed.compuinter.com/
-http://education.ldtp.com/
-https://edu.estic.org/
-https://about.actsministries.org/
-https://lxt.surfnet.ca/
-https://my-family.photo-frame.com/
-https://spanish.awiki.org/
-
-https://utopiaunblocker.com
-https://info.angle.twlab.org/
-https://class.books.rebro.org/
-https://edu.graph.acepod.com/
-https://guide.angle.worldcreate.org/
-https://ela.plant.wild1.org/
-https://core.info.port0.org/
-
-https://algebra.thehorseplace.us/
-https://k12.folklandmanagement.com/app
-https://info.svmblocker.com/app
-https://government.sotna.org/app
-https://teams.prosports.cl/app
-https://en.silentpatriot.com/app
-https://help.robot-agachado.net/app
-https://worksheets.hidict.cn/app
-https://derpman.lol/app
-https://geoquiz.goncharmaster.ru/app
-https://edu.mazovec.ru/app
-https://go.jaleh.info/app
-Primary Link - 
-TigerFishy's Unblocker
 Secondary Links - 
 http://listings.showmyhomes.com/
 http://info.sundby.com/
